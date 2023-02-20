@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hola ! , im currently backend developer<br> and sometimes on frontend developer so im fullstacks? 😆😆
+Just ordinary people who enjoying his coding life .
 
 
 ## 🌐 Socials:
